@@ -1,4 +1,4 @@
-**i'm ben**
+visit my website @ **[flkns.net](https://www.flkns.net)
 
 email me @ **benjaminfolkens@gmail.com**
 
